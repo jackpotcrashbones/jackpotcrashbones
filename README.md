@@ -1,3 +1,3 @@
 hi i dont play ponytown anymore here r my socials : technclock on tiktok, jackpotcrashcourse on discord, diviniadevil/destinatedfuture on roblox (i will probably not se ur friend req i donrt use roblox liek dat or at all) the other ones r privatt...ii will be more active on tiktok instead actually instead of pt, since pt is genuinely ruining my health + my grades and its harder for me to focus because of pony town. hope y'all understand!! PEAZZZ!!
 
-iiim still updating dis profile tho!! iim kinda talking 2 myself bc noone is checking my profile but ya, im only going to be on if there's mafia hostings (ONLY for mafias that im in the dc server for) if i have free time. otherwise nop
+iiim still updating dis profile tho!! iim kinda talking 2 myself bc noone is checking my profile but ya, im only going to be at the date everything area if i feel liek showing up l o l
